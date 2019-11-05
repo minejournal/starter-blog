@@ -1,5 +1,5 @@
 ---
-title: One more post
+title: Post about Georgia
 date: 2019-10-13T09:37:51.163Z
 image: ''
 tags:
