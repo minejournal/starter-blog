@@ -3,4 +3,4 @@ title: About
 menu: main
 draft: false
 ---
-This is some text about me.
+Here should be an extended info about me.
