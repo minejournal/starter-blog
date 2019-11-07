@@ -1,5 +1,5 @@
 ---
-title: Post about Georgia
+title: Post about Georgia UPDATED
 date: 2019-10-13T09:37:51.163Z
 image: ''
 tags:
