@@ -26,6 +26,8 @@ In short:
 
 I was selected to take part in a volunteering exchange program promoted by the EU in Tbilisi, Georgia at the International Centre for Peace and Integration.
 
+<!-- excerpt -->
+
 While in Great Britain the mighty parliament is still trying to figure out its own brexit-salad; in Italy we assist to the incipient of a disorganize and very italic “sovranism”;  in Hungary, and Poland illed calls from a nostalgic and dark past are being resurrected.
 
 The Georgian Republic represents the other side of the mirror: the last European bastion before entering the Ottoman or/and Persian Asia, saddled to the belly of a russian empire ready to re asset its power projection in any given time and place.
