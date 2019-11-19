@@ -1,6 +1,6 @@
 ---
 title: About
-menu: main
+menu: Main
 draft: false
 ---
-Here should be an extended info about me.
+Voyeuristic impressions of my travels.
