@@ -2,7 +2,7 @@
 title: Still Nature
 date: 2019-11-19T08:14:55.663Z
 image: /images/photo_2019-11-19_12-27-36.jpg
-draft: true
+draft: false
 ---
 Tbilisi, early October, 2019
 
