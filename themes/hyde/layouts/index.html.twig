@@ -16,7 +16,15 @@
             <a href="{{ url(post) }}">{{ post.title|e }}</a>
           </h1>
           <span class="post-date">{{ post.date|date("j M Y") }}</span>
+
+{% if post.image is defined %}
+      <img src="{{ post.image }}" />
+{% endif %}
+
           {{ post.content|excerptHtml }}
+
+<a href="{{ url(post) }}" style="text-decoration: underline;" class="post-date">Read More</a>
+
 {% endblock post %}
         </div>
 {% endif %}
