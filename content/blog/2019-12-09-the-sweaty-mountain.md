@@ -5,7 +5,7 @@ draft: false
 ---
 ## Kazbegi, March 2019
 
-I am deeply attracted to alleys, to secondary roads, to forgotten spaces, a tiny bit shabby, free from the petty  influence of mass tourism.
+I am deeply attracted to alleys, to secondary roads, to forgotten and shabby spaces, free from the petty  influence of mass tourism.
 
 Near to Gudauri, repaired from the luxury ski resorts and hidden on the back of Kazbegi, the precious mecca of mountain lovers and internet likes, there is \*\** a village in almost total isolation in a marvellous gorge, surrounded by towers that are now fragments, behind gigantic mountains covered in snow and wrinkly pastures.
 
