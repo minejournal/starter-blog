@@ -1,5 +1,5 @@
 ---
-title: The sweaty mountain.
+title: The sweaty mountain
 date: 2019-12-06T10:25:34.499Z
 draft: true
 ---
