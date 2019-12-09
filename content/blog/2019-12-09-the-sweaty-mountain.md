@@ -3,7 +3,7 @@ title: The sweaty mountain
 date: 2019-12-09T10:25:34.499Z
 draft: true
 ---
-# Kazbegi, March 2019
+## Kazbegi, March 2019
 
 I am deeply attracted to alleys, to secondary roads, to forgotten spaces, a tiny bit shabby, free from the petty  influence of mass tourism.
 
@@ -26,7 +26,6 @@ Idling, a few steps from me, a group of three men are having a pic nic. They cal
 There is not much need to communicate a lot: my georgian is very poor, my russian non existent, my gestures the only abundant resource, their good will my only light: in a few hours the winter sun will set fast, and I, super unprepared, ask for advice.
 
 Each one gave me a judgement:  crazy, drunk, reckless: I am by myself, without a phone, few banknotes, my notebook, a pen, a huge curiosity to go until the end.
-
 
 I agree.
 
