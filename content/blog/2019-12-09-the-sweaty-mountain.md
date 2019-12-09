@@ -1,6 +1,6 @@
 ---
-title: The sweaty mountain.
-date: 2019-12-06T10:25:34.499Z
+title: The sweaty mountain
+date: 2019-12-09T10:25:34.499Z
 draft: true
 ---
 # Kazbegi, March 2019
