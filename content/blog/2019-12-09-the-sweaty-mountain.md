@@ -9,6 +9,8 @@ I am deeply attracted to alleys, to secondary roads, to forgotten spaces, a tiny
 
 Near to Gudauri, repaired from the luxury ski resorts and hidden on the back of Kazbegi, the precious mecca of mountain lovers and internet likes, there is \*\** a village in almost total isolation in a marvellous gorge, surrounded by towers that are now fragments, behind gigantic mountains covered in snow and wrinkly pastures.
 
+<!-- excerpt -->
+
 To get ther one has to trek along the penury of unwelcoming houses: a timid conglomerate of individual who live in total desolation by the edge of the road.
 
 Walking through is digusting, the road is filled with trash, the once pristine river is summerged in plastic. It is mandatory to keep going straight ahead until the sky opens, until the houses of the farmers can be found.
