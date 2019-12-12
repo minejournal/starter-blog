@@ -20,4 +20,4 @@ The night here is a communal experience: no one is being judge beyond the face c
 
 Round, and round, and round: walking between the fumes of dancing people: prayers of their own mystical pleasure.
 
-A break, a splash of fresh air, cigarette clouds, a joke with a friend, a chaotic bathroom line, clugged toilets, tap water, couples akwardly fighting, couples akwardly loving, pudic desinibitition, hunger, khinkali, bed….
+A break, a splash of fresh air, cigarette clouds, a joke with a friend, a chaotic bathroom line, clugged toilets, tap water, couples akwardly fighting, couples akwardly loving, reserved disinhibition, hunger, khinkali, bed….
