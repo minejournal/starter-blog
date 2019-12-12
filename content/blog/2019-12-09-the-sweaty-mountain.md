@@ -11,7 +11,7 @@ Near to Gudauri, repaired from the luxury ski resorts and hidden on the back of 
 
 <!-- excerpt -->
 
-To get ther one has to trek along the penury of unwelcoming houses: a timid conglomerate of individual who live in total desolation by the edge of the road.
+To get ther one has to trek along the penury of unwelcoming houses: a timid conglomerate of individuals who live in total desolation by the edge of the road.
 
 Walking through is digusting, the road is filled with trash, the once pristine river is summerged in plastic. It is mandatory to keep going straight ahead until the sky opens, until the houses of the farmers can be found.
 
@@ -45,7 +45,7 @@ I ask to the first person I meet to show me, if possible, the house of my future
 
 We try to know each other, she offers me bread, cheese, and tea. I observe the spartan and lovely warm place: I ask for a bed, I am very sleepy: it is not very polite: my host understand, she smiles at me as if I were some regular visitor. She offers me more wine: is vinegar, she introduce me to her husband who kindly offer me more...
 
-At the second floor of the house a bed awaits for me: it’s incredible confortable; heavy wooden blankets, also very comfortable. I take off my clothes: I fall asleep.
+At the second floor of the house a bed awaits for me: it’s incredible comfortable; heavy wooden blankets, also very comfortable. I take off my clothes: I fall asleep.
 
 I sudden wake up at the deeps of night: I need to go to the toilet outside.
 
@@ -73,6 +73,6 @@ I am going back to the ugliness, the polution, to the desolation, the main road.
 
 At the village of \*\** only eight people live, all of them very old.
 
-I notice standing like a pole on the road a Babushka: she is a sure sign.
+I notice standing like a pole on the road a babushka: she is a sure sign.
 
-I will wait with her the Martshutka that will take me home.
+I will wait with her the martshutka that will take me home.
