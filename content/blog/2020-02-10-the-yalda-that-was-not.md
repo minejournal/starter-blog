@@ -18,6 +18,8 @@ My iranian adventure was a deep trip into a country that appears more like a pie
 
 A trip into the stomach of the ancient and current world to see and admire the patina that men from other centuries and millenea ago fell for.
 
+<!-- excerpt -->
+
 I arrived to Tehran on Yalda night, the winter solstice: a celebration of pagan origins that is discretly celebrated.
 
 At the airport two uknown men were waiting for me: once in the car with them I had an intense de ja vu straight from Caracas: the night, the endless city highway, the careless driving, a kind but empty conversation, political propaganda, poverty kept out from the comfort of the car I was riding in.
