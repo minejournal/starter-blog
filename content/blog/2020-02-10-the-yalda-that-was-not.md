@@ -28,6 +28,6 @@ It was almost midnight, not even the time to put my baggage in the hostel: we we
 
 At the exit I was gifted a watermelon by the restaurant staff.
 
-On the streets an old man in an elegant but consumed opera suit, was singing with is wireless mic on hand, and was stopping the traffic, and was asking for change, on the other side a motorcycle: two young lovers: she let the wind rip off her hijab.
+On the streets an old man in an elegant but consumed opera suit, was singing with his wireless mic on hand, and was stopping the traffic, and was asking for change, on the other side a motorcycle: two young lovers: she let the wind rip off her hijab.
 
 To be continued.
