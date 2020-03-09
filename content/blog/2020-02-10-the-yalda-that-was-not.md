@@ -2,6 +2,11 @@
 title: The Yalda that was not
 date: 2020-02-10T11:09:13.095Z
 image: /images/photo_2020-02-10_15-57-00.jpg
+tags:
+  - Iran
+  - Tehran
+  - Persia
+  - Yalda
 draft: false
 ---
 ## Tehran, 21/12/2019
