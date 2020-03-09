@@ -2,6 +2,9 @@
 title: Night Abstractions
 date: 2019-12-12T08:28:42.818Z
 image: /images/photo_2019-12-12_12-39-34.jpg
+tags:
+  - Tbilisi
+  - Nightlife
 draft: false
 ---
 ## Tbilisi, Nights, 2019
