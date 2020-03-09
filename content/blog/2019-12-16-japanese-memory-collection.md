@@ -4,7 +4,7 @@ date: 2019-12-16T10:25:16.064Z
 image: /images/photo_2019-12-16_14-47-51.jpg
 tags:
   - Japan
-  - Osaka
+  - Kyoto
   - Jazz
 draft: false
 ---
