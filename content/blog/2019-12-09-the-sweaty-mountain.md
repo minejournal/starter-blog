@@ -1,6 +1,10 @@
 ---
 title: The sweaty mountain
 date: 2019-12-09T10:25:34.499Z
+tags:
+  - Georgia
+  - Kazbegi
+  - Caucasus
 draft: false
 ---
 ## Kazbegi, March 2019
