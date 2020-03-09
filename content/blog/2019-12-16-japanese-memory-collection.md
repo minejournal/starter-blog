@@ -2,6 +2,10 @@
 title: Japanese memory collection
 date: 2019-12-16T10:25:16.064Z
 image: /images/photo_2019-12-16_14-47-51.jpg
+tags:
+  - Japan
+  - Kyoto
+  - Jazz
 draft: false
 ---
 I met a japanese jazz drummer in Tbilisi, we talked about jazz, about his projects, he was a writer altought a very obscure or shy: he does not translate, he writes for some peculiar magazines.
