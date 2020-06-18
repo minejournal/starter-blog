@@ -2,7 +2,10 @@
 title: The Night Shift
 date: 2020-06-18T18:56:02.829Z
 image: /images/photo_2020-06-18_23-40-44.jpg
-draft: true
+tags:
+  - iran
+  - taxi driver
+draft: false
 ---
 ## Shiraz, almost midnight, first of january, 2020
 
@@ -17,6 +20,8 @@ After a quick reflection, and a brief discussion we thought that was wiser to av
 We want to reach Hormuz island.
 
 We are improvising, we try to book last minute three seats on a night bus but everything is fully book to virtually anywhere: we are not dissuaded, we are convince that directly in the bus station we will find some last minute seats to Bandar Abbas.
+
+<!-- excerpt -->
 
 We warmly say goodbye to our friends who immediately bet on our return to the hostel: the trip has just been transform into a dare.
 
