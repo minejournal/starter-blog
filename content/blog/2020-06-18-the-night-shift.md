@@ -11,7 +11,7 @@ draft: false
 
 After days of national grief in the city of Hafez: rain, markets, nighty roamings, hashish smoker who panhandle fire and bread.
 
-We are three, we thought about going to Kerman but there the funeral of General Soleimani is gonna be held.
+We are three, we thought about going to Kerman but there the funeral of General Soleimani is going to take place.
 
 We are somehow atracted to the idea of sumerging ourself into the crowd and be part of a cause that does not belong to us, just to taste the course of the events that, with passion and without regards for what the future will actual think, are considered historical.
 
