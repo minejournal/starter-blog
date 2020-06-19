@@ -7,7 +7,7 @@ tags:
   - taxi driver
 draft: false
 ---
-## Shiraz, almost midnight, first of january, 2020
+## Shiraz, almost midnight, firsts days of january, 2020
 
 After days of national grief in the city of Hafez: rain, markets, nighty roamings, hashish smoker who panhandle fire and bread.
 
