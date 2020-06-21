@@ -2,13 +2,15 @@
 title: Glitter, iron and salt
 date: 2020-06-21T14:22:38.522Z
 image: /images/photo_2020-06-21_18-28-59.jpg
-draft: true
+draft: false
 ---
 ## Hormuz Island, January the 8th, 2020
 
-I write this letter because at the moment I detached from the group. I am in a sort of desert, or at least what in the past was a salty river and now is what remains: wet sand, salt, scarse vegetation around. I am in Hormuz Island: today there is a possibility a new war could start.
+I write this letter because at the moment I detached from the group. I am in a sort of desert, or at least what in the past was a salty river and now is what remains: wet sand, salt, scarse vegetation around. I am in Hormuz Island: tonight there is a possibility of bombings, of war.
 
-Today we went to the sacred salt mountain: the closest place to mars. We discovered the tomb of three forgotten jews, resting on top of a isolated hill, cover with shells and with view to the vasteness of the see. We entered into a rainbow cave, and by the time the sun set we went for a cup of tea.
+Earlier today we went to the sacred salt mountain: the closest place to mars. We discovered the tomb of three forgotten jews, resting on top of a isolated hill, cover with shells and with view to the vasteness of the see. We entered into a rainbow cave, and by the time the sun set we went for a cup of tea.
+
+<!-- excerpt -->
 
 ![](/images/photo_2020-06-21_18-28-50.jpg)
 
