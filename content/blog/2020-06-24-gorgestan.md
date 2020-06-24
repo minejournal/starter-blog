@@ -1,5 +1,5 @@
 ---
-title: Gorgestan
+title: Gorgestan ski resort
 date: 2020-06-24T13:07:45.552Z
 image: /images/photo_2020-06-24_17-39-15.jpg
 tags:
