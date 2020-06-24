@@ -16,7 +16,7 @@ draft: false
 
 Diaspora: dispersion: dissolution: a forced transplant: resiliance: memory.
 
- **\    I**
+  ** I**
 
 Georgia became in a short time a personal thing. The designated limits of its dimension turned out to be a comfortable knitting and its borders special bridges connecting territories that haven’t been spoiled by the progress of the boring, unifying, and alienating globalization of the 21st century, made of white smiles and glimmer.
 
@@ -36,7 +36,7 @@ However I was starting to be bored: my energies started to fade: I felt I became
 
 I did little to none research on the Zargos, even less on Fereydnushar. My head wanted to feel the thrill of the bazar, to feel the presence of Ahura Mazda, to sneak into jewish ghettos.
 
- **\    II**
+  **  II**
 
 We departed before sunrise the next day: there were four of us. A. C. P. and me:
 
@@ -50,7 +50,7 @@ P. was speaking about the mountains, about his skiing trips, he gave us a short 
 
 This information filled me with an odd nostalgy.
 
-\     **\    III**
+ **  III**
 
 Skiing was the main goal of the trip. However while we were slowly entering into the county of Fereydnushar, it was possible to see scrambled around georgian signs on the shops: most of mini markets.
 
@@ -64,7 +64,7 @@ We chatted but my head was taken by Georgia, by the fact I really wished to visi
 
 It was not possible.
 
-\      **  IV**\
+  ** IV**\
 \
 I realized few hours before the sunset, before the slopes were about to close, that probably we would have head back home. 
 
@@ -91,7 +91,7 @@ Finished the thea, the laughter, the photoshooting, the hugs, and the handshake 
 
 We were super hungry, the idea was to eat iranian: destiny wanted that the only iranian restaurant had just chicken and rise on the menu and since I do not eat meat we ended up in the georgian restaurant next door. We ate lobiani, khinkali, home made potatos, kachapuri, lobio, gerkins, and georgian bread: only wine was missing from the table but the tha was fantastic and in my exhaltation, in my thoughts,I felt home and tipsy.
 
- **\    V**
+  **V**
 
 Unfortunately we had to rush: we needed to give back our gear: the manager of the renting place was a grouchy one in the morning, by dawn almost as the news of foreigner who lived in Georgia and spoke few lines of georgian, the atmosphere changed: his face now looked more like the one of proud grandfather.
 
