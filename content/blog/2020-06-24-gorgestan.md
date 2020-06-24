@@ -28,7 +28,7 @@ Not always a trip comply with expectations and itineraries: often travelling is 
 
 Outside from this load it is possible, sometimes, to slip into more gentle currents, almost magical ones that flow into desires that we fail to even imaging to have.
 
-After a few hours hanging out in a park in Isfahan, the idea of going to ski to the Zargos Mountains that surround Fereydunshar, only a 3 hours drive, popped out.
+After a few hours hanging out in a park in Isfahan, the idea of going to ski in the Zargos Mountains that surround Fereydunshar, only a 3 hours drive, popped out.
 
 I spent relaxing days in Isfahan, I let my self being snuggled by the serenity and by the cosmpolitan profiles: I was enjoying the effect of walking in an armenian neighborhood, to later wander in the jewish ghetto adorned by dozens of tiny synagogues, to sneak in hidden gardens to drink thea by the rythm of the church bells next door, and ending the day among the other rythm, the one of a imaginary tide inside of the big and majestic Mosques of the city.
 
@@ -64,7 +64,7 @@ We chatted but my head was taken by Georgia, by the fact I really wished to visi
 
 It was not possible.
 
-\     **   IV**\
+\      **  IV**\
 \
 I realized few hours before the sunset, before the slopes were about to close, that probably we would have head back home. 
 
