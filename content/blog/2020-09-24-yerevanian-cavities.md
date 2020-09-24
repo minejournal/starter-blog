@@ -1,5 +1,5 @@
 ---
-title: Yerevanian cavities.
+title: Yerevanian cavities
 date: 2020-09-24T09:59:55.458Z
 image: /images/photo_2020-09-24_15-03-15.jpg
 tags:
