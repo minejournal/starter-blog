@@ -24,6 +24,10 @@ The almost mythological imaginary was collapsing: the myth carefully crafted and
 
 The county, geographically speaking, is nothing less than a corridor, the small anteroom of a world that is no longer the eco of the European civilizations openly competing with the middle eastern ones, it lies trapped and conditioned between the neo ottoman Turkey and the turkophile and turkophone Azerbaijan; Georgia – the garden of God – emerges over its slender body, and its tight feet create a funnel towards the Persia. Yes, Armenia, reminds me of an anteroom, an alley with bricked windows, where tiny drops of light are filtered, an alley covered with dusty, millenarian books, instruments, mesmerizing objects, a mutilated and mistreated place.
 
+<!-- excerpt -->
+
+
+
 ![](/images/photo_2020-09-24_15-03-09.jpg)
 
 At the border with Georgia, it is clear how this transformation takes place: young guards: flesh sticks with Soviet uniforms of a not well defined greenish/yellowish color: they look uncomfortable, arid, oppressive around other guard, much older, who appear only to exist: they doubled their bodies inside of their uniforms.
