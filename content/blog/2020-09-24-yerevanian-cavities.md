@@ -54,9 +54,7 @@ I feel uneasy: this constant aurea of sadness and confusion.
 
 There is something in Yerevan that reminded me of what I disliked about Caracas where I grew up, where I first met Armenian friends, when I first learn of their pains.
 
-I feel annoyed by how the patriotic feelings.  
-
-The love towards the cultural heritage, the conservation of the treasure that survived centuries of violence have became flags of a pedantic nationalistic exaltation as fierce as is ridiculous, have became relics and not active elements toward the construction of a better future, a frist step on the bridge of dialogue with the mortal enemy.
+I feel annoyed by how the patriotic feelings, the love towards the cultural heritage, the conservation of the treasure that survived centuries of violence have became flags of a pedantic nationalistic exaltation as fierce as is ridiculous, have became relics and not active elements toward the construction of a better future, a frist step on the bridge of dialogue with the mortal enemy.
 
 A victim that desires to remain one.
 
