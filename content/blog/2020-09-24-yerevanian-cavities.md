@@ -44,9 +44,9 @@ This initial frame portrays deep rooted wounds and what it emerges out of it it'
 
 As the days pass I do not know how to behave: in my intimacy I nourish some aversion, and this seems reciprocated.
 
-I feel confused in a place where it is repeated ad nauseam the pains and traumas of the genocide but there is a lack of awareness to recognize themselves as executioners of a similar kind during the Nagorno Karabakh war.
+I feel baffled in a place where it is repeated ad nauseam the pains and traumas of the genocide but there is a lack of awareness to recognize themselves as executioners of a similar kind during the Nagorno Karabakh war.
 
-I feel made fun of when in a Armenian restaurant I get offered Georgian food, trying to convince me that are local ones.
+I feel made fun of when in a Armenian restaurant I get offered Georgian foods, trying to convince me that are local ones.
 
 I feel despised: a pharmacy clerk condemmed me to hell after asking for condoms – others just kicked me out of the place - in a town few km away from Yerevan, few km away from the gigantic lake Sevan.
 
