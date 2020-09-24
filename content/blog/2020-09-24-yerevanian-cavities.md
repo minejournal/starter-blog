@@ -58,7 +58,7 @@ I feel annoyed by how the patriotic feelings, the love towards the cultural heri
 
 A victim that desires to remain one.
 
-When I think about the Armenia of my short and intense trips, I keep thinking that there is much more but absolute nothing of what is being preached: their unsealed wounds are a push to the seas of the world hoping to substitute a chapter, a paragraph, a verse, a relevant note, in the mighty epics and ethos of human civilization to their favor, but I found a brusque narrative that pretend to appropriate, in a clumsy way, the merits of others, refusing their own, or perhaps hiding them: following this oddity in ab absurdo reasoning we ended up believing we should be thankful to Armenians because Kardashians – of armenian origins -have made trash, camp, and kitsch universally popular and accesible.
+When I think about the Armenia of my short and intense trips, I keep thinking that there is much more but absolute nothing of what is being preached: their unsealed wounds are a push to the seas of the world hoping to substitute a chapter, a paragraph, a verse, a relevant note, in the mighty epics and ethos of human civilization to their favor, but I found a brusque narrative that pretend to appropriate, in a clumsy way, the merits of others, refusing their own, or perhaps hiding them: following this oddity in ab absurdum reasoning we ended up believing we should be thankful to Armenians because Kardashians – of armenian origins -have made trash, camp, and kitsch universally popular and accesible.
 
 ![](/images/photo_2020-09-24_15-02-58.jpg)
 
