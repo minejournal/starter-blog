@@ -30,7 +30,7 @@ The county, geographically speaking, is nothing less than a corridor, the small 
 
 At the border with Georgia, it is clear how this transformation takes place: young guards: flesh sticks with Soviet uniforms of a not well defined greenish/yellowish color: they look uncomfortable, arid, oppressive around other guard, much older, who appear only to exist: they doubled their bodies inside of their uniforms.
 
-The periphery of the the collapsed soviet empire: contorted roads, covered in holes, where drivers cruise at unreasonable speeds, where the striking views seem out of focus, unreachable.
+The periphery of  the collapsed soviet empire: contorted roads, covered in holes, where drivers cruise at unreasonable speeds, where the striking views seem out of focus, unreachable.
 
 I arrive in a deserted station, far from the center, lacking vitality, businesses, informal sellers, deprived of the torment so typical of many other bus stations, deprived of the chaos. 
 
