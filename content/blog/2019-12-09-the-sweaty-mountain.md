@@ -7,15 +7,15 @@ tags:
   - Caucasus
 draft: false
 ---
-## Kazbegi, March 2019
+## Kazbegi, end of March, 2019
 
 I am deeply attracted to alleys, to secondary roads, to forgotten and shabby spaces, free from the petty  influence of mass tourism.
 
-Near to Gudauri, repaired from the luxury ski resorts and hidden on the back of Kazbegi, the precious mecca of mountain lovers and internet likes, there is \*\** a village in almost total isolation in a marvellous gorge, surrounded by towers that are now fragments, behind gigantic mountains covered in snow and wrinkly pastures.
+Near to Gudauri, repaired from the luxurious ski resorts and hidden on the back of Kazbegi, the precious mecca of mountain lovers and internet likes, there is \*\** a village in almost total isolation in a marvellous gorge, surrounded by towers that are now fragments, behind gigantic peaks covered in snow and wrinkly pastures.
 
 <!-- excerpt -->
 
-To get ther one has to trek along the penury of unwelcoming houses: a timid conglomerate of individuals who live in total desolation by the edge of the road.
+To get there is necessary a trek along the penury of unwelcoming houses: a timid conglomerate of individuals who live in total desolation by the edge of the road.
 
 Walking through is digusting, the road is filled with trash, the once pristine river is summerged in plastic. It is mandatory to keep going straight ahead until the sky opens, until the houses of the farmers can be found.
 
@@ -47,13 +47,13 @@ Many adore to admire from the top the bottom. I was at the top yet higher peaks 
 
 I ask to the first person I meet to show me, if possible, the house of my future host: she refuse to host me: I failed: I knock on the next door: I am greet in.
 
-We try to know each other, she offers me bread, cheese, and tea. I observe the spartan and lovely warm place: I ask for a bed, I am very sleepy: it is not very polite: my host understand, she smiles at me as if I were some regular visitor. She offers me more wine: is vinegar, she introduce me to her husband who kindly offer me more...
+We try to know each other, she offers me bread, cheese, and tea. I observe the spartan and warm place: I ask for a bed, I am very sleepy: it is not very polite: my host understand, she smiles at me as if I were some regular visitor. She offers me more wine: is vinegar, she introduce me to her husband who kindly offer me more...
 
-At the second floor of the house a bed awaits for me: it’s incredible comfortable; heavy wooden blankets, also very comfortable. I take off my clothes: I fall asleep.
+At the second floor of the house a bed awaits for me: it’s comfortable; heavy wooden blankets, keep away the cold. I take off my clothes: I fall asleep.
 
 I sudden wake up at the deeps of night: I need to go to the toilet outside.
 
-I am struck: the sky is clear, an outstanding shiny moon is competing with the starred universe: the mountains are all around: more than white: they reflect all this light. 
+I am struck: the sky is clear, an outstanding moon is competing with the starred universe: the mountains are all around: more than white: they reflect all this light. 
 
 I won’t describe the cold.
 
