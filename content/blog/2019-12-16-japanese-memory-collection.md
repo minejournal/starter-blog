@@ -22,7 +22,7 @@ Whiskey, jazz, origami gift from the waitress at the bar, an exchange of words i
 
 The next day: 
 
-the temple, the graveyard, the blossom, the twisted branches of twisted trees, an old lady taking a picture of her old lover, me being asked to take their picture together: he was not very please: they were completely in love, the blossom again.
+the temple, the graveyard, the blossom, the twisted branches of twisted trees, an old lady taking a picture of her old lover, me being asked to take their picture together: he was not very please: they were completely in love, they blossom again.
 
 Up the graveyard:
 
@@ -38,17 +38,17 @@ like stones.
 
 **Osaka, 26 of april, 2017**
 
-It is raining, I am lost in the city, in a bad mood, I rest, I walk again, I eat in a sort of restaurant in which you cannot sit, a naked cat is painted on its walls, I drink Sake with ice with old men, I am on my way to a jazz concert, I am already tipsy, I grab another beer.
+It is raining, I am lost in the city, in a bad mood, I rest, I walk again, I eat in a sort of restaurant in which you cannot sit, a naked cat is painted on its walls, I drink Sake with ice in company of old men, I am on my way to a jazz concert, I am already tipsy, I grab another beer.
 
 The jazz concert:
 
-A bass, a piano, a guy who smokes, a very old and elegant lady sitting next to me, a sweet waitress: three listeners, two players, one waitress, the jazz.
+A bass, a piano, a guy who smokes, a very old and elegant lady sitting next to me, a caring waitress: three listeners, two players, one waitress, the jazz.
 
 This are just fragments, too brief too be considered poetic, but they evoke intimate memories, engulfed in smoke, they fade away by each piano note.
 
-_“After some years I will put to myself the same question that I answer today as half an ignorant: what is jazz music?_
+*“After some years I will put to myself the same question that I answer today as half an ignorant: what is jazz music?*
 
-_Well, jazz is an hedonistic person, a tiny bit naughty, is a rebel that does not take anything and anyone seriously. It does not get old because is never old. Is not pedantic yet is quite arrogant. Is not presumptuous, does not need to show off to anyone. Is romantic because is not attached to any feeling yet is highly passionate. Is solitary yet enjoys being in a party.”_
+*Well, jazz is an hedonistic person, a tiny bit naughty, is a rebel that does not take anything and anyone seriously. It does not get old because is never old. Is not pedantic yet is quite arrogant. Is not presumptuous, does not need to show off to anyone. Is romantic because is not attached to any feeling yet is highly passionate. Is solitary yet enjoys being in a party.”*
 
 After my notes I started talking to the lady next to me: she was the owner of the biggest collection of japanese pottery, Mrs Tanaka-Maru. 
 
@@ -56,7 +56,7 @@ She financed the concert, we talked about Italy, about art, my friends in Tokyo,
 
 She felt like a long distant friend, the one you can only meet in anonymous places, away from the pains of high society and poshy art markets.
 
-The whiskey was excelent, the music superb, the atmosphere similar to the one of a newly renovated purgatory or of a incredible musical limbo: the rest of the city was outcasted, silenced, covered in heavy rain..
+The whiskey was excelent, the music superb, the atmosphere similar to the one of a newly renovated purgatory or of a incredible musical limbo: the rest of the city was outcasted, silenced, covered in heavy rain.
 
 The other guy did not stop smoking nor sharing friendly yet silent remarks with his good friend the bassist.
 
