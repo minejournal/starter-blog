@@ -15,11 +15,11 @@ We are three, we thought about going to Kerman but there the funeral of General 
 
 We are somehow atracted to the idea of sumerging ourself into the crowd and be part of a cause that does not belong to us, just to taste the course of the events that, with passion and without regards for what the future will actual think, are considered historical.
 
-After a quick reflection, and a brief discussion we thought that was wiser to avoid following the sorrow and turn to the sea.
+After a quick reflection, and a brief discussion we thought that was wiser to avoid following the sorrow and turn our heads  to the sea.
 
 We want to reach Hormuz island.
 
-We are improvising, we try to book last minute three seats on a night bus but everything is fully book to virtually anywhere: we are not dissuaded, we are convinced that directly in the bus station we will find some last minute seats to Bandar Abbas.
+We are improvising, we try to book last minute three seats on a night bus but everything is fully booked to virtually anywhere: we are not dissuaded, we are convinced that directly in the bus station we will find some last minute seats to Bandar Abbas.
 
 <!-- excerpt -->
 
@@ -33,11 +33,11 @@ No. They bet on our failure: we are not going back to the hostel.
 
 A brief idea emerges: to order a taxi via app but there are 600 km: it seems absurd and an insult.
 
-We opt to negotiate with the in loco taxi drivers. Our good fellow P. bites a bit of farsi, he knows the numbers and all the key words: he has fun bartering.
+We opt to negotiate with the  taxi drivers. Our good fellow P. who bites a bit of farsi,  knows the numbers and all the key words: he has fun bartering.
 
 Taxi drivers wander around like an omogenous body that expells an appendix in hopes to capture a client.
 
-First man offers us a bloated price: we want at least half of it.  Second taxist seems more willing, more desperate to find a customer: negotiations seem to go smoothly, however P. commits two capital sins: pride and stinginess: he is conviced he can get an even better deal: he wont: our taxi driver walks away, we feel almost defeated.
+First taximan offers us a bloated price: we want at least half of it.  Second taxist seems more willing, more desperate to find a customer: negotiations seem to go smoothly, however P. commits two capital sins: pride and stinginess: he is conviced he can get an even better deal: he won't: our taxi driver walks away, we feel almost defeated.
 
 Seated in the waiting room we discuss on what to do, we count our money, we make our calculations, what is wiser? Go back to the hostel, pay for a room we will use for few hours before the sunrise? We try another taxi driver? (there seem to be none left) We decided to look for the last man, to accept his offer.
 
@@ -47,7 +47,7 @@ Is midnight already. Taxis are no longer to be seen, at least not the one willin
 
 Fortune, according to the dictionary, is an immaginary being, which as an unknown cause, are attributed by the masses the effects and the improvise events, unexpected,  without obvious and known cause.
 
-A man approached us. He was not there when we arrived to the station, he was not there when we were looking for a taxist face of our liking: he appeared, like certain insomniac people appears whilst looking for something.
+A man approached us. He was not there when we arrived to the station, he was not there when we were looking for a taxist faces of our liking: he appeared, like certain insomniac people appears whilst looking for something to do.
 
 He asked if we need a driver, we explained we want to reach Bandar Abbas.
 
