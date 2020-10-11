@@ -16,7 +16,7 @@ draft: false
 
 Diaspora: dispersion: dissolution: a forced transplant: resiliance: memory.
 
-  ** I**
+   **I**
 
 Georgia became in a short time a personal thing. The designated limits of its dimension turned out to be a comfortable knitting and its borders special bridges connecting territories that haven’t been spoiled by the progress of the boring, unifying, and alienating globalization of the 21st century, made of white smiles and glimmer.
 
@@ -30,13 +30,13 @@ Outside from this load it is possible, sometimes, to slip into more gentle curre
 
 After a few hours hanging out in a park in Isfahan, the idea of going to ski in the Zargos Mountains that surround Fereydunshar, only a 3 hours drive, popped out.
 
-I spent relaxing days in Isfahan, I let my self being snuggled by the serenity and by the cosmpolitan profiles: I was enjoying the effect of walking in an armenian neighborhood, to later wander in the jewish ghetto adorned by dozens of tiny synagogues, to sneak in hidden gardens to drink thea by the rythm of the church bells next door, and ending the day among the other rythm, the one of a imaginary tide inside of the big and majestic Mosques of the city.
+I spent relaxing days in Isfahan, I let my self being snuggled by the serenity and by the cosmpolitan profiles: I was enjoying the effect of walking in an armenian neighborhood, to later wander in the jewish ghetto adorned by dozens of tiny synagogues, to sneak in hidden gardens to drink tea by the rythm of the church bells next door, and ending the day among the other rythm, the one of a imaginary tide inside of the big and majestic Mosques of the city.
 
 However I was starting to be bored: my energies started to fade: I felt I became a fake citizen, with a fake routine: I was nevertheless happy to be in that place, surrounded by new and lovely friends.
 
 I did little to none research on the Zargos, even less on Fereydnushar. My head wanted to feel the thrill of the bazar, to feel the presence of Ahura Mazda, to sneak into jewish ghettos.
 
-  **  II**
+   ** II**
 
 We departed before sunrise the next day: there were four of us. A. C. P. and me:
 
@@ -50,7 +50,7 @@ P. was speaking about the mountains, about his skiing trips, he gave us a short 
 
 This information filled me with an odd nostalgy.
 
- **  III**
+  ** III**
 
 Skiing was the main goal of the trip. However while we were slowly entering into the county of Fereydnushar, it was possible to see scrambled around georgian signs on the shops: most of mini markets.
 
@@ -64,7 +64,7 @@ We chatted but my head was taken by Georgia, by the fact I really wished to visi
 
 It was not possible.
 
-  ** IV**\
+   **IV**\
 \
 I realized few hours before the sunset, before the slopes were about to close, that probably we would have head back home. 
 
@@ -82,12 +82,12 @@ I was by pure chance into the heart of the georgian diaspora in Iran.
 
 When someone ask me who I am, where I am from, what do I do, I often give cold annoyed answers, or invent a quick story;, that day I was dissapointed I could not talk in a language I barely know.
 
-However I was there, suttutering in my broken georgian, summarizing in the shortest of words who I was, where I was from, what I was doing, ordering black thea in that stage of surprise d eyes.
+However I was there, suttutering in my broken georgian, summarizing in the shortest of words who I was, where I was from, what I was doing, ordering black tea in that stage of surprise d eyes.
 
 After few minutes C. joined the talk. He lived in Tbilisi for a few months, and was also happy of what was going on, P. noticed and became our interpreter, our bridge between us and those impossible guys. A. that evening gained the simpathy and admiration of the rest of the snowboarders. Was a good day.
 
 \
-Finished the thea, the laughter, the photoshooting, the hugs, and the handshake between all of us strangers who thanked our encounter on planet earth we decided to grab something to eat.
+Finished the tea, the laughter, the photoshooting, the hugs, and the handshake between all of us strangers who thanked our encounter on planet earth we decided to grab something to eat.
 
 We were super hungry, the idea was to eat iranian: destiny wanted that the only iranian restaurant had just chicken and rise on the menu and since I do not eat meat we ended up in the georgian restaurant next door. We ate lobiani, khinkali, home made potatos, kachapuri, lobio, gerkins, and georgian bread: only wine was missing from the table but the tha was fantastic and in my exhaltation, in my thoughts,I felt home and tipsy.
 
