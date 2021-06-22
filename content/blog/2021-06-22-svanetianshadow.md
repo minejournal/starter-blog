@@ -12,6 +12,7 @@ Wondering the hiking trails that connect Mestia to Ushguli made me raise some qu
 Svaneti spikes as one of the main cultural regions of Georgia: it own language, it own rules, it own merits, its difficult character, its own deserved and clear distinction from the rest: it recently jumped into a whirlpool of mass tourism, of adaptation and promotion of its heritage.
 
 Heavily hit by the pandemic, the region remains today in a sort of suspension.
+<!-- excerpt -->
 
 
 In an era in which each country is fiercely competing for share of the mass tourism, there seem to be common points: a heavy promotion that invest into the revival of a somehow forgotten but important region, an initial influx of travelers and global trotters that align, and consume, and promote the primal share of a golden promise, followed by an expansion that exceeds the initial intentions of revitalization: the primordial and unique elements of a place slowly turn into a cliche of sorts, spaces slowly convert to mostly fast, easy, overpriced, arenas of consumption (hotels, restaurants, souvenir shops, markets).
