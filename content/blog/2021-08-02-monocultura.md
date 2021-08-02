@@ -6,7 +6,7 @@ draft: false
 ---
 ## Tbilisi, 28 of July, 2021
 
-It all starts after the rain calms down. 
+It all start after the rain calms down. 
 
 The day is not yet lost to the apathy of the summer days: movies are too long to marathon on, books induce bulimia, and music deserves a break.
 
@@ -19,6 +19,8 @@ The route to the top on a summer day is pruned of human life: a shy couple, a lo
 Once reached the top, in order to continue my stroll towards Narikala, is necessary to access the Park: a *demodé* institution with little to offer but Potemkin scenery and entertainment. Its ground is covered by steps of Arabs, and eastern European tourist.
 
 There is nothing for me there, I keep walking, the routes signs appears finally towards Narikala Fortress.
+
+<!-- excerpt -->
 
 Again the masses of people dissolve, and again I found a shy couple, a guy running to the rythm of his music, an emptied atmosphere.
 
