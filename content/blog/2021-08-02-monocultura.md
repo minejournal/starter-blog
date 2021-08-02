@@ -58,8 +58,6 @@ I’m heading home.
 
 We remain still, stuck into an idea, into our scenography, then we move like a beam among the disorder of things we don’t like, or that we don’t understand, or do not want to understand.
 
-We remain still, then we move like a beam among the disorder of things we don’t like, or that we don’t understand, or do not want to understand.
-
 Cira, is playing her guitar under the lights of an underpass: black jacket, black pants, black boots, black hair, white t- shirt, few necklace with peaceful symbols of good wishes and hopes.
 
 She is a black hole towards the 90’s music of female rockers. There is just cruising public: loads of shining coins in her guitar case give her performance some value.
