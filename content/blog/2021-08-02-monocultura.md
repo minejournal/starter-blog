@@ -56,7 +56,7 @@ The jam is over.
 
 I’m heading home.
 
-Some of us remain standing still, going around a somehow genuine idea of the world and our artistic relation to it, an idea ripped in a present that was and is now lost.
+We remain still, stuck into an idea, into our scenography, then we move like a beam among the disorder of things we don’t like, or that we don’t understand, or do not want to understand.
 
 We remain still, then we move like a beam among the disorder of things we don’t like, or that we don’t understand, or do not want to understand.
 
