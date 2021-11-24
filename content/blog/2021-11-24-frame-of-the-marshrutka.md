@@ -44,7 +44,7 @@ Who can afford it prefers to take a shared taxi (not less dangerous but perhaps 
 
 The trip is often silent, not many people talk  to each other, everyone is concentrate into themselves, some are on the phone, some manage to sleep, to listen to music, some seem to meditate, some manage to smoke. 
 
-The trip rarely last less or more than the designated hours, it follow a rigid schedule, pre programmed stops: for refreshment, or petrol, or smoke (smoke happens in any case, at any stop, in any circumstance).
+The trip rarely last less or more than the designated hours, it follows a rigid schedule, pre programmed stops: for refreshment, or petrol, or smoking (smoking happens in any case, at any stop, in any circumstance).
 
 A Marshrutka never leaves a passenger behind: we are sheeps.
 
