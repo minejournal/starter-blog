@@ -16,11 +16,11 @@ According to the Tao clarity can be achieved only if we remain quiet in the pres
 
 In this regard, in a process of revelations and practices of different methods of meditation the Marshrutkas of post soviet Georgia appeared as the right candidate to prove Lao Tzu sayings.
 
-On the formal level Marshrutkas are part of an intricate transportation network highly organized, with a fairly float of vehicles in acceptable shape, decentralized, easily available, cheap, democratic, in continuous movement, that pales down the Georgian railway system.
+On the formal level Marshrutkas are part of an intricate transportation network: highly organized, with a fairly float of vehicles in acceptable shape, decentralized, easily available, cheap, democratic, in continuous movement, that pales down the Georgian railway system.
 
 A Marshrutka can take a traveler virtually anywhere: they represent the first line of connection towards smaller hubs scattered around the country, the ideal mean to a last minute decision.
 
-On a more concrete level Marshrutka are non place of extreme adrenaline: drivers are often sleep deprived, overworked, reckless individuals who in a lazy attempt to fulfill their religious duties, their desire of forgiveness in the eventuality of a fatality, and the desire of protection and good luck, cover the dashboard of their cars in a parade of stickers, and figures depicting the cross, saints, *Madonne*, and Jesus.
+On a more concrete level Marshrutka are a non place of extreme adrenaline: drivers are often sleep deprived, overworked, reckless individuals who in a lazy attempt to fulfill their religious duties, their desire of forgiveness in the eventuality of a fatality, and the desire of protection and good luck, cover the dashboard of their cars in a parade of stickers, and figures depicting the cross, saints, *Madonne*, and Jesus.
 
 Seats are assigned by a precise distribution: women and children often on the first row of seat. Poor clergy men, younger women, and close friends, or relative of the driver, usually seat next to him in which are probably the most comfortable seats. The rest of the population is scattered to the back, often in random order; the worst seats are the middle ones at the end of the car and the ones by the window on top of the wheels, individual seats are golden, sharing the space with someone sitting next to pushes the limit of patience and tolerance: cheap perfumes, body odors, food aromas, the endemic smells of the car, it all compose an odorific collage that completes the inner geography of the car.
 
