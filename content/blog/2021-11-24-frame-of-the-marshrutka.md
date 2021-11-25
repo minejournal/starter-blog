@@ -48,7 +48,7 @@ The trip rarely last less or more than the designated hours, it follows a rigid 
 
 A Marshrutka never leaves a passenger behind: we are sheeps.
 
-Often music is part of the trip: from a mix of neo melodic Russian dance folk pop songs to a random selection of poorly made remix of poorly made remixes of unkillable commercial tunes from around the world.
+Often music is part of the trip: from a mix of neo melodic Russian dance folk pop songs to a random selection of a poorly made remix of poorly made remixes of unkillable commercial tunes from around the world.
 
 More Zen Marshrutka will avoid playing any music resulting in a trip filled with natural noises, engine rumors, wind, rain (if there's any), traffic cacophonies of sorts.  At night lights of bright blue, or green, or red color, pollute the inside of the car.
 
