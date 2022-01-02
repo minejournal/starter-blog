@@ -1,7 +1,7 @@
 ---
 title: Happy New Year
 date: 2022-01-02T16:02:44.731Z
-image: /images/20220102_090815.jpg
+image: /images/20220102_081850.jpg
 draft: false
 ---
 # Tbilisi, 2/1/22
