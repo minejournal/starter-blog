@@ -20,7 +20,7 @@ The latest legend narrates that Saint Nino, after her pilgrimage in Armenia, set
 
 Russian remains the lingua franca, followed by Armenian, although communication is possible in Georgian specially in the bigger cities: Akhalsitkhe, Akhalkalaki, Vardzia.
 
-\
+<!-- excerpt -->\
 Javakheti would have been the natural door to Kurdistan, and although the border is open from the Georgian side towards Kars what lies ahead is a cemetery of Armenian towns: a sad and fresh reminder of the genocide.
 
 \
