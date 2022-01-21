@@ -14,13 +14,14 @@ Javakheti, standing to this meaning, remains a remote place.
 
 Inhabited by mostly Armenian Descendants since the 5th century BC, and a minority of Javaks of Georgian origin, the region it is now enclosed in the Republic of Georgia in southern Caucasus between Turkey to the west and Armenia to the south.
 
-Javakheti it stands stills at 2000 meters above sea level, it surrounds the ancient Paravani Lake.
+Javakheti stands stills at 2000 meters above sea level, it surrounds the ancient Paravani Lake.
 
 The latest legend narrates that Saint Nino, after her pilgrimage in Armenia, set foot in this land in the 4th century AD from here she followed the Kura River until she reached Mtskheta where the process of Christianization of the country began.
 
 Russian remains the lingua franca, followed by Armenian, although communication is possible in Georgian specially in the bigger cities: Akhalsitkhe, Akhalkalaki, Vardzia.
 
 <!-- excerpt -->\
+
 Javakheti would have been the natural door to Kurdistan, and although the border is open from the Georgian side towards Kars what lies ahead is a cemetery of Armenian towns: a sad and fresh reminder of the genocide.
 
 \
