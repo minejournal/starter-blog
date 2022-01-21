@@ -26,8 +26,6 @@ Javakheti would have been the natural door to Kurdistan, and although the border
 \
 It is very cold in Javakheti, also during the summers.
 
-
-
 ![](/images/20220119_153743.jpg)
 
 \
@@ -39,24 +37,22 @@ During orthodox Epiphany, on the 19 of January, some take three deep dips in the
 
 To forget the cold, and to continue the festivities, the monasteries organize a supra: in our case the long tables were covered in plastic glasses and dishes and forks and knives all surrounded by simple yet rich meals: bread, cheese, roasted chickens, boiled meat, fried fish, chicken salad.
 
-Wine is omnipresent, also fanta and mineral water.
+Wine is omnipresent, also Fanta and mineral water.
 
-Toast to good health, to good wishes, to good deeds, are a constant remix of voices and laughs that defy the loneliness.
+Toast to good health, to good wishes, to good deeds, are a constant remix of voices and laughs that defy the desolation.
 
-Javakheti feels far away: little to none transport options, little to none amenities besides the ruins of the castles scattered on the side of the roads, the miniscule cemeteries, the ancient monasteries, the open spaces along the mountain peaks, the laundry lines covered in frozen clothes, the overwhelming sense of time that has not yet fully devoured the memory of this plateu.
+Javakheti feels far away: little to none transport options, little to none amenities besides the ruins of the castles scattered on the side of the roads, the miniscule cemeteries, the ancient monasteries, the open spaces along the mountain peaks, the laundry lines covered in frozen clothes, the overwhelming sense of time that has not yet fully devoured the memory of this plateau.
 
 The moon rises slow in Javakheti, it is also remote and lonely: full.
 
 Javakheti feels desolated: a high contrast between the rest of the regions of Georgia.
 
-Javakheti is mostly silent, is silence.
+Javakheti is mostly silent: is silence: is a corner of silent misery.
 
 Javakheti is deeply poor: potatoes are the main product of its soil. 
 
 This potatoes are well known in Tbilisi, they constitute the center of socioeconomical dynamics anchored to the barter system: merchants from Tbilisi come here with their trucks full of clothes, toys, books, small appliances, kitchenware, soaps, perfumes, novelties: everything is exchanged to its equivalent in kilos of potatoes calculated to its market price.
 
-Javakheti is a constant assonance. 
-
-
+Javakheti is a constant assonance, and foxes are abundant.
 
 ![](/images/20220119_154301.jpg)
