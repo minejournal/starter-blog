@@ -2,9 +2,9 @@
 title: The Theatrics of Bread
 date: 2022-01-27T18:00:57.391Z
 tags:
-  - "#Tbilisi"
-  - "#Bread"
-  - "#Bakery"
+  - Tbilisi
+  - Bread
+  - Bakery
 draft: false
 ---
 # Tbilisi, 27 of January 2022
