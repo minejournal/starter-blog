@@ -38,7 +38,7 @@ It's possible to witness the owner screaming at the baker because of small distr
 It is not a healthy relationship: when the owner is not around, the baker, in his relief, opens himself to the buyers: he is a ghost covered in flour.
 
 \
-It happens that the bakery is run by a solitary woman or man: they spend a monastic like work life in which not many words are spoken, their gestures are minimal, they work in smaller spaces, in this case the observation happens from outside a smaller window, and it feels like some sort of voyeuristic attraction specially when they work the dough: they submerge their arms into the raw dough, it requires strength, it looks like they are fighting an original elements and if they do not pay attention they might end up eaten and absorbed. It is best not to interrupt them when they are in this stage: it’s like breaking a spell for the sake of a piece of cold bread on the rack.
+It happens that the bakery is run by a solitary woman or man: they spend a monastic like work life in which not many words are spoken, their gestures are minimal, they work in reduced spaces, in this case the observation happens from outside a smaller window, and it feels like some sort of voyeuristic attraction specially when they work the dough: they submerge their arms into the raw dough, it requires strength, it looks like they are fighting an original elements and if they do not pay attention they might end up eaten and absorbed. It is best not to interrupt them when they are in this stage: it’s like breaking a spell for the sake of a piece of cold bread on the rack.
 
 When they are done baking they sit, they pay little to no attention to the tv, or their phones: they stand still: they wait, they sell, they bake.
 
