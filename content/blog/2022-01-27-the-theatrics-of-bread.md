@@ -2,9 +2,9 @@
 title: The Theatrics of Bread
 date: 2022-01-27T18:00:57.391Z
 tags:
-  - "#Tbilisi"
-  - "#Bread"
-  - "#Bakery"
+  - Tbilisi
+  - Bread
+  - Bakery
 draft: false
 ---
 # Tbilisi, 27 of January 2022
@@ -21,7 +21,7 @@ As the English word suggests, bread is a derivative onomatopoeia of proto-german
 
 <!-- excerpt -->
 
-In Tbilisi, bakeries, or Tonebi in Georgian, are not different from the ones of Tehran, or Yerevan, or Baku: the performance is essentially the same what does change is the space in which this performance is taking place and, of course, the kind of bread being produce.
+In Tbilisi, bakeries, or Tonebi in Georgian, are not different from the ones of Tehran, or Yerevan, or Baku: the performance is essentially the same what does change is the space in which this performance is taking place and, of course, the kind of bread being produced.
 
 In spite of the different names, and typologies, what seems to be fascinating is the homogeneity of the spaces: small or big, few elements are omnipresent in each and every single bakery around Georgia.
 
@@ -31,8 +31,6 @@ This scene can be particular hypnotizing like the one performed by a couple of l
 
 They take turns to go inside of the oven: their junoesque bodies are tightly wrapped in colorful leggings, their movements are smooth, their actions, their silence: they are not only baking, but dancing: they enter the tunnel, sticking our their legs, their bums, they get out with bread in their hands, they wobble, they don’t have any facial expressions.
 
-
-
 Some other times the baking process is a representation of the relation of power between the owner of the bakery and his employee who bake the bread. The owner supervises, and sells the bread while the baker fulfill the baking process with mechanical precision.
 
 It's possible to witness the owner screaming at the baker because of small distractions.
@@ -40,7 +38,7 @@ It's possible to witness the owner screaming at the baker because of small distr
 It is not a healthy relationship: when the owner is not around, the baker, in his relief, opens himself to the buyers: he is a ghost covered in flour.
 
 \
-It happens that the bakery is run by a solitary woman or man: they spend a monastic like work life in which not many words are spoken, their gestures are minimal, they work in smaller spaces, in this case the observation happens from outside a smaller window, and it feels like some sort of voyeuristic attraction specially when they work the dough: they submerge their arms into the raw dough, it requires strength, it looks like they are fighting an original elements and if they do not pay attention they might end up eaten and absorbed. It is best not to interrupt them when they are in this stage: it’s like breaking a spell for the sake of a piece of cold bread on the rack.
+It happens that the bakery is run by a solitary woman or man: they spend a monastic like work life in which not many words are spoken, their gestures are minimal, they work in reduced spaces, in this case the observation happens from outside a smaller window, and it feels like some sort of voyeuristic attraction specially when they work the dough: they submerge their arms into the raw dough, it requires strength, it looks like they are fighting an original elements and if they do not pay attention they might end up eaten and absorbed. It is best not to interrupt them when they are in this stage: it’s like breaking a spell for the sake of a piece of cold bread on the rack.
 
 When they are done baking they sit, they pay little to no attention to the tv, or their phones: they stand still: they wait, they sell, they bake.
 
