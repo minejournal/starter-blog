@@ -8,7 +8,7 @@ tags:
   - georgia
 draft: false
 ---
-## Trabzon, 2 of April, 2022
+## Tbilisi, 8 of June, 2022
 
 <!--StartFragment-->I.
 
