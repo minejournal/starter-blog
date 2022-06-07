@@ -10,8 +10,6 @@ draft: false
 ---
 ## Trabzon, 2 of April, 2022
 
-
-
 <!--StartFragment-->I.
 
 Transitions are states of uninterrupted chains of layers that we go across somehow.
@@ -26,8 +24,6 @@ Recently, after two months of absence, I returned to Tbilisi from Italy.
 I opted for a double nostos: one back to Italy: a country that feels as an abstraction but an essential part of myself; the other to Georgia a place in which I am experiencing a long transition on how I experience myself.
 
 In the middle of this two countries there is an important land border that stretches all the way from the Black Sea to the Persian Gulf and the Mediterranean Sea: we could call it middle east, Mesopotamia, Babylon: a enormous patch of land that dissolves Asia in Europe and vice versa.
-
-
 
 Travelling by land was a way to experience this dissociation from one to the other. And while many could argue that Georgia shares European values, this was not always been the case, since the Caucasus represents and important arena in which this two geographical burdens do not fully disappear.
 
@@ -44,13 +40,9 @@ Other series of bad events kept me away from crossing the border and invited me 
 \
 The spring attempt was smoother and this time Batumi did not look like a miserable city under the pains of the bad weather but as an indulging place from where to say good bye with bitter sweetness.
 
-
-
 Crossing the border with Turkey from Georgia is so easy that deceits the traveler into believing that borders are just a mere formality.
 
 The black sea coast does not hide many secrets: Georgian language is still spoken or understood as we move away, and the monotony of lushy mountain forest eliminate the idea we are transiting into a new country, only the change of the alphabet is a clear sign.
-
-
 
 Crossing the border between Georgia and Turkey is so easy, so familiar, that it impossible to understand why we are so obsess with them, the borders.
 
@@ -74,8 +66,6 @@ I saw how the eco monsters, the monstrous highways were slowing climbing the mou
 
 It was hot, it was noisy, I was difficult to concentrate on a city that underwhelmed and in which there was no intention of properly get to know.
 
-
-
 When I reached the otogar, the bus station, few hours afterwards, I did not have to wait for a bus straight to Erzurun across and o top of the mountains: a more vivid border into the most conservative Anatolia and a gateway into Kurdistan: Ramadan started the day before, and I was heading towards the middle east.
 
 I could have not have imagined how recurrent two apparently innocent coincidences would have influenced my whole trip.
@@ -83,4 +73,7 @@ I could have not have imagined how recurrent two apparently innocent coincidence
 To be continued.
 
 \
+
 <!--EndFragment-->
+
+![](/images/20220401_142939.jpg)
