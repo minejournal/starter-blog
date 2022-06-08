@@ -65,7 +65,7 @@ Although I only spent one night, he exchanged useful information for my upcoming
 
 In the morning, I missed the bus to the City Center but was assured I could hitch hike back to town: the hitchhike never happened, no driver was willing to take me this round, and, as less and less opportunities to hop in a car went by, I walked instead to the city.
 
-I saw how the eco monsters, and the monstrous highways were slowing climbing the mountains almost as if Trabzon was really transforming into just a local attraction in which was not worth to live: many touristic and franchising shops around the center, similar restaurants every hundred meters, a sense of monotonous chaos felt as extremely boring and anxiolytic.
+I saw how the eco monsters, and the monstrous highways were slowing climbing the mountains almost as if Trabzon was really transforming into just a local attraction in which was not worth to live: many touristic and franchising shops around the center, similar restaurants every hundred meters, a sense of monotonous chaos felt extremely boring and anxiolytic.
 
 It was hot, it was noisy, I was difficult to concentrate on a city that underwhelmed and in which there was no reciprocal intention of properly get to know.
 
