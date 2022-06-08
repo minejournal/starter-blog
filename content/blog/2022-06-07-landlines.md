@@ -28,7 +28,7 @@ In the middle of this two countries there is an important land border that stret
 
 Travelling by land was a way to taste this dissociation from one to the other. 
 
-And while many could argue that Georgia shares European values, this was not always been the case, since the Caucasus represents and important arena in which this two geographical burdens do not fully disappear.
+And while many could argue that Georgia shares European values, this was not always been the case, since the Caucasus represents an important arena in which this two geographical burdens do not fully disappear.
 
 \
 The first stop from Tbilisi was Batumi.
