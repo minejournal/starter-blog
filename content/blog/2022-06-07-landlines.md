@@ -22,7 +22,7 @@ Recently, after two months of absence, I returned to Tbilisi from Italy.
 
 <!-- excerpt -->\
 
-I opted for a double nostos: one back to Italy: a country that feels like an abstraction but is an essential part of myself; the other to Georgia a place in which I am experiencing a long transition on how I experience myself.
+I opted for a double, quicker, nostos: one back to Italy: a country that feels like an abstraction but is an essential part of myself; the other to Georgia a place in which I am experiencing a long transition on how I experience myself.
 
 In the middle of this two countries there is an important land border that stretches all the way from the Black Sea to the Persian Gulf and the Mediterranean Sea: we could call it Middle East, Mesopotamia, Babylon: an enormous patch of land that dissolves Asia in Europe and vice versa.
 
