@@ -1,6 +1,7 @@
 ---
 title: No one is waving
 date: 2022-06-12T08:47:41.867Z
+image: /images/20220404_125945.jpg
 draft: false
 ---
 # Erzurum, 3-4 of April, 2022
@@ -54,6 +55,8 @@ Erzurum is one part of those cities that represent the gate to and from somewher
 
 An ancient Armenian city, conquered by the Romans, part of the Byzantine Empire, absorbed by the Arabs, demolished by the Mongols, rebuilt under the ottomans, contended by the Russians.
 
+![](/images/20220404_130924.jpg)
+
 As day passes I keep on noticing an element that C.S. brought into our past conversations: any ancient rock standing in a Turkish cities does not feel like holding any relation with the city itself: the historical inheritances are at best a tourist attraction with some degree of curation, at worse they are free standing and forgotten while an accelerated and chaotic cementification transforms the fabric of the city.
 
 F. he eloquently showed me instead how Erzurum can be conceived as transition spot in which instead of architectural elements, melodies and rhythms are the real grounds of the debate.
@@ -63,8 +66,16 @@ We listen to music, we dance together, we forget about politics, borders, trash.
 When I travel, I often forget about music, I forget about nature, I forget about many aspects that should enrich my trip in a classical sense: I over indulge in voyeuristic tendencies: I observe and I absorb the degradation: where does it look different from the one in Tbilisi? where does it looks the same? can trash be a folkloristic component until it is properly dispose off?
 How come waste is disposed in such different ways? why we are so self destructive? How does a city dispose of itself? 
 
-Erzurum was lovely in that regard: three magnificent Armenian looking mausoleums (some estimated they have been around since the 12th century) they have no inscriptions, no identity, they are surrounded by the snow covered mountain, they are in a hill, close to the main Madrassa, on an island of sorts in which right next to them a contemporary art museum is disorderly being built imitating all of the canon we banally associated with a contemporary art museum building (a museum can also be a fake).
+![](/images/20220404_125203.jpg)
+
+Erzurum was lovely in that regard: three magnificent tombs, two of them Armenian looking (some estimated they have been around since the 12th century) they have no inscriptions, no identity, they are surrounded by the snow covered mountain, they are in a hill, close to the main Madrassa, on an island of sorts in which right next to them a contemporary art museum is disorderly being built imitating all of the canon we banally associated with a contemporary art museum building (a museum can also be a fake).
 
 The tombs are in pristine condition, in spite of the mud and pools of water filled with plastic bottles and cigarette butts around them: a mash up of new, and old, and collapsed houses lie not very far away from them: the tombs look even more majestic, the sky is clear, there is no one waving.
 
+
+
+![](/images/20220404_145354.jpg)
+
 My circles in Erzurum are over.
+
+![](/images/20220404_131157.jpg)
